@@ -16,7 +16,7 @@
 - _Contact me on TG if uve got good ideas_
 
 - [x] ⛔Horny? Yes
-- [x] ⛔College 
+- [x] ⛔Stu-dying 
 - [x] 🚫Know coding.
 
 #### Github Stats
