@@ -12,7 +12,7 @@
 
 
 - **Currently Pretty Dead**
-- _Profiles under dev so dont mind the shitty stuff rn_
+- _Probably wasting time_
 - _Contact me on TG if uve got good ideas_
 
 - [x] ⛔Horny? Yes
