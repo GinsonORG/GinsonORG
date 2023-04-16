@@ -4,7 +4,10 @@
 #### You can find me at
 [![telegram badge](https://img.shields.io/badge/@georgopol-30302f?style=for-the-badge&logo=telegram)](https://t.me/georgopol)
 
-![russian-president-meme](https://user-images.githubusercontent.com/73432258/232302424-f803fd87-7ee1-42c5-b68c-daefa7151f19.gif)
+
+
+https://user-images.githubusercontent.com/73432258/232302491-178b2823-f859-4eab-9a61-7d5243502a7a.mp4
+
 
 
 - **Currently Pretty Dead**
